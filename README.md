@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MikotoUchiha
-- 👀 I’m interested in coding
+- 👀 I’m interested in NEW THINGS
 - 📫 How to reach me on TG @MikotoUchiha_078
 
 <!---
